@@ -1,3 +1,7 @@
+![Uploading AdobeStock_209569917.jpeg…]()
+
+
+
 # Artigo-sobre-Business-Intelligence-BI-
 Artigo sobre Business Intelligence e sua importancia para as organizações:
 
